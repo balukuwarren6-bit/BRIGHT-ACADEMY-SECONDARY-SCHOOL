@@ -1,2 +1,1 @@
-# BRIGHT-ACADEMY-SECONDARY-SCHOOL
-bass.com
+White Online Shop.com
